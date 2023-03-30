@@ -13,7 +13,7 @@
 
 - 💬 Ask me about **Anything cool**
 
-- 📫 How to reach me **You can me reach me via any on my social media handle**
+- 📫 How to reach me **via any of my social media handle**
 
 - ⚡ Fun fact **I think that I can smell my code**
 
